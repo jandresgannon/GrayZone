@@ -1,7 +1,7 @@
 ## The Shadow of Deterrence: Why capable actors engage in contests short of war
 
 Gannon, J Andr´es, Erik A. Gartzke, Jon R. Lindsay, and Peter Schram. “The Shadow of Deterrence: Why capable
-actors engage in contests short of war.” Journal of Conflict Resolution, (Forthcoming).
+actors engage in contests short of war.” _Journal of Conflict Resolution_, 68(2-3), (2024): 230-268.
 
 ## The Paper:
 
